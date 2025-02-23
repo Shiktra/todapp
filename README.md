@@ -1,4 +1,4 @@
-![WhatsApp Image 2025-02-23 at 11 47 31 PM](https://github.com/user-attachments/assets/000ce92b-acf4-4123-aefd-ae38fe9f8e25)
-![WhatsApp Image 2025-02-23 at 11 47 31 PM (1)](https://github.com/user-attachments/assets/be1ae91a-c21d-492d-85c3-11ac9e7d914c)
-![WhatsApp Image 2025-02-23 at 11 47 31 PM (2)](https://github.com/user-attachments/assets/6c54ec7f-94ed-46d5-b36f-270921479dc2)
-![WhatsApp Image 2025-02-23 at 11 48 24 PM](https://github.com/user-attachments/assets/0ec5f52b-cc4f-4a9d-ae78-a72d16bdda38)
+![one](https://github.com/user-attachments/assets/bc4c2d37-203f-458e-ac44-a84e19537867)
+![two](https://github.com/user-attachments/assets/1850d9e6-e37d-4725-813d-255a747930ed)
+![three](https://github.com/user-attachments/assets/b8a31c7d-8b9c-4903-9967-ad1c988f4b34)
+![tasks](https://github.com/user-attachments/assets/ecef305d-bb1b-4e05-b9f5-3111988cf18c)
